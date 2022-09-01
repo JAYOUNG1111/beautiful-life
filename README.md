@@ -1,1 +1,1 @@
-# beautiful-life-1
+# 시나브로 1
